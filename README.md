@@ -41,8 +41,8 @@
 ---
 
 ### 📫 Connect with me
-- LinkedIn: YOUR LINK  
-- Email: YOUR EMAIL  
+- LinkedIn: https://www.linkedin.com/in/ijsathi/
+- Email: ijsathi2001rs@gmail.com  
 
 ---
 
